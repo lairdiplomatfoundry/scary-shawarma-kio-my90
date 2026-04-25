@@ -1,4 +1,4 @@
-
+scary shawarma kiosk Scripts instant offers the most advanced scary shawarma kiosk Script, with auto-collect and teleport. Perfect for dominating any
 
 
 
